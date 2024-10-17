@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @the-roy-jr
+- 👀 I’m interested in AI, Medical Sciences, and Coding without knowing what it is
+- 🌱 I’m currently learning to integrate various Ai powered platforms to code
+- 💞️ I’m looking to collaborate on anything that links Ai to healthcare
+- 📫 How to reach me mail me at royjipmer@gmail.com
+- 😄 Pronouns: He
+- ⚡ Fun fact: I am too brainy to waste my time!
